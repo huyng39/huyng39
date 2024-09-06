@@ -1,5 +1,5 @@
 # 💫 About Me:
-🎓HUFLIT<br>⚡ Watch Youtube and hear Music (Especially i'm a fan of BP K-Pop Group)
+🎓HUFLIT<br>⚡ Watch Youtube and listen to music (Especially i'm a fan of BP K-Pop Group)
 
 
 ## 🌐 Socials:
