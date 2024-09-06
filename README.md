@@ -1,5 +1,5 @@
 # 💫 About Me:
-🎓HUFLIT<br>⚡ I'm also a fan of BLACKPINK K-Pop group 😂
+🎓HUFLIT<br>⚡ Watch Youtube and hear Music (Especially i'm a fan of BP K-Pop Group)
 
 
 ## 🌐 Socials:
